@@ -21,6 +21,7 @@ JESUS LAZARO LOPEZ - JesusLazaroAvellaneda
 
 Sergio Romero - SergioRomeroOfficial
 
+Raul Gonzalez Gallego - RaulGonz11
 =======
 David Cuzuban - davidcuzuban
 
